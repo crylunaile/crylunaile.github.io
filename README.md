@@ -1,5 +1,5 @@
 # osuskins
-if you have a some troubles and need update, contact me "hyeok2044fanboy" on osu
+if you have a some troubles or need update, contact me "hyeok2044fanboy" on osu
 
 
 # [-NM A](https://drive.google.com/file/d/19qbmeiE4YBdVOnE6qhAa7oCPS4pJ81lY/view?usp=sharing)
