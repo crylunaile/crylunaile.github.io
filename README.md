@@ -14,3 +14,6 @@ if you have a some troubles or need update, contact me "hyeok2044fanboy" on osu
 
 [stellerafis ts](https://drive.google.com/file/d/1z15h5i0tBMis5o1FSVfn-AP5jgKtbsTP/view?usp=sharing)
 ![screenshot828](https://files.catbox.moe/6g0f4m.png)
+
+[maid aristia](https://drive.google.com/file/d/1Ra66XCvo4y3w-1KshxYJ_2LAqP7A3dsl/view?usp=sharing)
+![screenshot830](https://files.catbox.moe/2exvoo.png)
