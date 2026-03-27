@@ -30,8 +30,8 @@ if you have a some troubles or need update, contact me "hyeok2044fanboy" on osu
 # [jp zadymiarz htei pop](https://drive.google.com/file/d/14DeqfgT8fVcvyEbt-wby9uJL_ZC6nhqg/view?usp=sharing)
 ![screenshot837](https://files.catbox.moe/e1geqa.png)
 
-#[jaazerschmino](https://drive.google.com/file/d/1CeufzYRImbrFgvlJwXDHlHK3NIGlaLhN/view?usp=sharing)
+# [jaazerschmino](https://drive.google.com/file/d/1CeufzYRImbrFgvlJwXDHlHK3NIGlaLhN/view?usp=sharing)
 ![screenshot838](https://files.catbox.moe/1vvt75.png)
 
-#[stellerino](https://drive.google.com/file/d/1WidfydQD2_e22SCWhN4_AnkFRGhvcJa5/view?usp=sharing)
+# [stellerino](https://drive.google.com/file/d/1WidfydQD2_e22SCWhN4_AnkFRGhvcJa5/view?usp=sharing)
 ![screenshot839](https://files.catbox.moe/yxzjdr.png)
