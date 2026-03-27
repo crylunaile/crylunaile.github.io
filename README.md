@@ -23,3 +23,15 @@ if you have a some troubles or need update, contact me "hyeok2044fanboy" on osu
 
 # [maid stella cos](https://drive.google.com/file/d/1JQ3KzpS_458759orOv_yCOU4UldXexI_/view?usp=sharing)
 ![screenshot832](https://files.catbox.moe/0q8s5d.png)
+
+# [#tlqkf page edit](https://drive.google.com/file/d/1dSXb6z9ndpXgDhf4mTwsEnbHRhRCvJ8C/view?usp=sharing)
+![screenshot836](https://files.catbox.moe/t02i0l.png)
+
+# [jp zadymiarz htei pop](https://drive.google.com/file/d/14DeqfgT8fVcvyEbt-wby9uJL_ZC6nhqg/view?usp=sharing)
+![screenshot837](https://files.catbox.moe/e1geqa.png)
+
+#[jaazerschmino](https://drive.google.com/file/d/1CeufzYRImbrFgvlJwXDHlHK3NIGlaLhN/view?usp=sharing)
+![screenshot838](https://files.catbox.moe/1vvt75.png)
+
+#[stellerino](https://drive.google.com/file/d/1WidfydQD2_e22SCWhN4_AnkFRGhvcJa5/view?usp=sharing)
+![screenshot839](https://files.catbox.moe/yxzjdr.png)
