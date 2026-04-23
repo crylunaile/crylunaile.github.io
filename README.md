@@ -1,6 +1,8 @@
 # osuskins
 if you have a some troubles or need update, contact me "hyeok2044fanboy" on osu
 
+# [xishu](https://drive.google.com/file/d/1N4Tx7S_czXuKiayWX5itHSw6-9sMuhoO/view?usp=sharing)
+![screenshot925](https://files.catbox.moe/tfigm8.png)
 
 # [-NM A](https://drive.google.com/file/d/19qbmeiE4YBdVOnE6qhAa7oCPS4pJ81lY/view?usp=sharing)
 
